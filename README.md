@@ -4,4 +4,4 @@
 
 🤝 **Контакты:**  
 - 📧 Email: cyddesigner@gmail.com  
-- 🌐 Telegram: @cyd_official
+- 🌐 Telegram: @radaev_studio
